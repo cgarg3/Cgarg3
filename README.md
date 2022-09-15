@@ -7,6 +7,7 @@ I like solving coding problems, exploring new technologies, drawing, travelling 
 Pronouns: He/Him/His
 
 How to reach me:
-[LinkedIn](www.linkedin.com/in/gargt615)
+
+[LinkedIn](https://www.linkedin.com/in/gargt615/)
 
 Fun fact: I really sleep at night
