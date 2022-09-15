@@ -9,5 +9,7 @@ Pronouns: He/Him/His
 How to reach me:
 
 [LinkedIn](https://www.linkedin.com/in/gargt615/)
+[Twitter](https://twitter.com/gargt615)
+[Instagram](https://www.instagram.com/chiraggarg547/)
 
 Fun fact: I really sleep at night
