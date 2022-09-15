@@ -1,4 +1,4 @@
-### Hey, I am Chirag Garg
+Hey 👋, I am Chirag Garg
 
 I am an international student currently studying in Seneca College and I am enrolled in Computer Programming and Analysis.
 
